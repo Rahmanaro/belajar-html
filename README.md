@@ -4,3 +4,5 @@
 
 # Resources
 # artikel nasi padang tokopedia: https://www.tokopedia.com/blog/cara-baru-menikmati-masakan-padang-vegan-ala-loka-padang-bts/?utm_source=google&utm_medium=organic
+
+# 16:02:2023 (PR yang sudah di selesaikan, atau memfinisihkan artikel loka padang yang kemarin di buat)
